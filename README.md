@@ -1,3 +1,3 @@
 # Slide Potentiometer
 
-[](https://pbs.twimg.com/media/E9k1SVXWQAYUP03?format=jpg&name=large)
+[](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTCV0V9dyaFOC8ShvDPnbkas_Kb_MG7SaClow&usqp=CAU)
